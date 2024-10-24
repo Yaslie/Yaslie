@@ -12,7 +12,7 @@
 
 ###
 
-<p align="left">🌱 I’m currently learning <br>  - Everything, cause im a jr.<br>👯 I’m looking to collaborate with <br> - With everyone, I am new in codding and I would love to be part of projects, adventures and friendships.<br>📫 How to reach me: <br> - Hey! Contact me with a mail<br>- manuechdz@gmail.com<br>- yaslie333@gmail.com<br>⚡ Fun fact:<br>- Im a barista, i like coffee, great coffee!!!, so, if you want a coffee guy in your team, im the one!, im team #V60 but i never say no to a sweet drink neither.</p>
+<p align="left">🌱 I’m currently learning <br>  - Everything, cause im a jr.<br>👯 I’m looking to collaborate with <br> - With everyone, I am new in codding and I would love to be part of projects, adventures and friendships.<br>📫 How to reach me: <br> - Hey! Contact me with an email<br>- manuechdz@gmail.com<br>- yaslie333@gmail.com<br>⚡ Fun fact:<br>- Im a barista, i like coffee, great coffee!!!, so, if you want a coffee guy in your team, im the one!, im team #V60 but i never say no to a sweet drink neither.</p>
 
 ###
 
